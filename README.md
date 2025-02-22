@@ -31,3 +31,4 @@
 
 ---
 🚀 Always looking for new challenges and exciting projects!  
+![image](https://github.com/user-attachments/assets/d5d65284-2ab8-491d-b2b3-2d0f83ec2610)
