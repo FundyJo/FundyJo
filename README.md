@@ -27,7 +27,7 @@
 
 ### 📫 Contact
 - 🐙 [GitHub Profile](https://github.com/FundyJo)
-- ✉️ Email: [your_email@example.com]  
+- ✉️ Discord: fundyjo 
 
 ---
 🚀 Always looking for new challenges and exciting projects!  
